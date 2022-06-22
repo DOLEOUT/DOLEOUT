@@ -1,10 +1,27 @@
-- 👋 Hi, I’m @DOLEOUT
+- I am known as " DOLEOUT "
 - 👀 I’m interested in earning crypto online...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me thelions.den727@gmail.com ...
+- 🌱 I’m currently learning and need help making this a reality...
+- 💞️ I’m looking to collaborate on t.me/doleoutsworld/...
+- 📫 How to reach me: doleoutsworld727@gmail.com ...
 
-<!---
-DOLEOUT/DOLEOUT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+//DOLEOUT.ETH IS A POOL --- @DOLEOUTDAN is WALLET linking DNS TO ENS on COMPOUND.FINANCE protocol.
+
+// (DØLEØUT.APK or blue.doleout.apk or doleout.apk) is a ***SINGLE-SIGN-ON**SAMSUNG-LINKED** DEV MP3 UNLOCKED ENCODED FORMAT ON HTTP://T.ME BASED SERVER
+
+//
+THE GOAL IS TO EARN ETH on COMPOUND.FINANCE AS A PEER2PEER REWARD SYS FOR TIME SPENT LISTENING,
+TO YIELD PROOF OF STAKE USING UNBUNTU NOSO-GOLANG TO GENERATE CPU PWR TO TO MINE SONGS (AS BLOCKS), EACH SONG, PER MINUTE LISTENED ON YOUR PROFILE BY OTHERS
+WILL BE SUFFICIENT TO GENERATE AND LEVERAGE STAKE ON YOURS, YOUR FRIENDS OR FOLLOWERS PROFILE
+VIA OPENPGP-SSO-SSL-SSH-HTTP PROTOCOL
+T-ME WILL ALLOW BOTH ANONYMOUS(UPTO-6HRS-PER-SESSION) AND NON-ANONYOUS USERS TO USE TELEGRAM SERVERS ON PGP TO SECURE API
+ON BOTH MOBILE AND HTTP BROWSERS, ALLOWING SECURITY, ANONIMITY, AND REAL POS
+
+*** DOLEOUT *** IS AN ALIAS NAME and is universal, DERIVING FROM PEER2PEER-TIMESTAKE AND ETH LENDING OVER-OPENPGP-DEVELOPER AND THE LENDING OF ETH FOR UPGRADED SECURITY ON PROOF OF STAKE VIA GLOBAL TIME AND
+INTEREST TIGHTLY ON COMPOUND.FINANCE PROTOCOL
+
+*TOKENS RETURNED FOR REWARD FOR TIME LISTENING SHOULD BE KNOWN INDIVIDUALLY AS D-ETH or DETH OR (1:1(DOLEOUT.ETH:COMPOUND.FINANCE))*
+//
+
+
+
+
